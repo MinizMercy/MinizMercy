@@ -4,7 +4,7 @@
 - 🍙 Commissions Open! Contact me on instagram @Miniz.Mercy
 - 🌸 Virgo Sun, Libra Rising and Cancer Moon
 - 🍙 Pansexual (She/They)
-- 🌸 Yes I am mini irl too!
+- 🌸 Current Project: Ethereal, Code Breaker (Webtoon) and Phoenix Phantom (Webtoon)
 
 <!---
 MinizMercy/MinizMercy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
